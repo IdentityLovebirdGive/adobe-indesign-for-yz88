@@ -1,4 +1,4 @@
-# 
+# Adobe InDesign for macOS new Panel - batch processing and custom brushes offers the most advanced Adobe InDesign for macOS panel, with batch processing and custom brushes. Ideal
 
 
 
